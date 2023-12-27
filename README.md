@@ -1,2 +1,2 @@
 # ALL CONTENT IN THIS ORGANISATION IS AI-GENERATED AND NOT WRITTEN BY AN HUMAN.
-All rights reserved gay.みんな LLC
+All rights reserved 
